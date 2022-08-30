@@ -1,1 +1,0 @@
-Imago Dei
